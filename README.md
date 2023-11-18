@@ -1,0 +1,1 @@
+# Azle-DFINITY-project-for-a-note-taking-Application
